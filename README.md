@@ -26,3 +26,5 @@
 
 
 [Memphis](https://imgur.com/a/ulcx0)
+
+[Connecticut](https://imgur.com/a/Y556z)
