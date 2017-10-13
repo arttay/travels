@@ -7,7 +7,7 @@
 [Rome](https://imgur.com/a/5xsqz)
 
 
-[Southwest U.S](https://imgur.com/a/c8B2l)
+[Southwest U.S and Grand Canyon](https://imgur.com/a/c8B2l)
 
 
 [Vegas](https://imgur.com/a/wuyJn)
